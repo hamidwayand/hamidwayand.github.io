@@ -1,1 +1,0 @@
-# hamidwayand.github.io
